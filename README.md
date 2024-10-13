@@ -6,8 +6,8 @@
 本文与毒药评测解药测速等一样仅介绍分享机场评测，不参与购买、服务和售后，相关问题请联系翻墙机场服务商。建议先购买月付套餐，满意之后再决定是否购买更长时间套餐。
 
 ## 1.FeiJiCloud 飞机云机场  稳定便宜的手机电脑梯子推荐首选
-[**点击官方网站注册**](https://go.51tz.cc/fjcloud)  
-最低套餐月付9.9元  
+[**点击官方网站注册**](https://go.1vpn.cc/jife)  
+最低套餐月付10元  
 
 [![飞机云.jpg](https://s2.loli.net/2023/11/28/XdGP2lkvg6xY1QS.jpg)](https://go.51tz.cc/fjcloud)
 
@@ -15,12 +15,12 @@
 
 线路节点快速稳定，支持netflix网飞等流媒体解锁，支持流畅访问chatgpt、google、Tiktok、youtube、Github等外网。
 
-套餐价格也便宜，一个月只需要9.9，简直就是半公益机场，适合追求极致高性价比的用户，如学生党、外贸人员和程序开发人员。
+套餐价格也便宜，一个月只需要10，简直就是半公益机场，适合追求极致高性价比的用户，如学生党、外贸人员和程序开发人员。
 
 在线客服快速回复，问题处理效率高，机场还提供包含小火箭的苹果账号和 Netflix 账号购买渠道。
 
 ## 2.NiceClous 奈思云机场 2024最稳定的付费SSR节点梯子  
-[**点击官方网站注册**](https://go.51tz.cc/nicecloud)  
+[**点击官方网站注册**](https://go.1vpn.cc/nisi)  
 最低套餐月付12元  
 
 [![奈絲韻.jpg](https://s2.loli.net/2023/11/21/dFAnPqGciwMJo9W.jpg)](https://go.51tz.cc/nicecloud)  
@@ -34,7 +34,7 @@
 包年套餐用户直接赠送ChatGpt等高级账号，除了常规套餐之外，也有不限时按量付费流量包提供。
 
 ## 3.SYCloud 速云梯机场 稳定的高端机场梯子加速器 
-[**点击官方网站注册**](https://go.51tz.cc/sycloud)  
+[**点击官方网站注册**](https://go.1vpn.cc/suyu)  
 最低套餐月付18元
 
 [![速云梯.jpg](https://s2.loli.net/2023/11/28/tZVUaivdECBQhwy.jpg)](https://go.51tz.cc/sycloud) 
@@ -50,7 +50,7 @@
 速云梯的科学上网客户端不仅仅支持电脑版本，苹果手机，安卓手机，Mac电脑，Ipad等设备，都能在官网上下载相对应的客户端，安装后 轻轻一点，即可享受无界上外网。 
 
 ## 4. SodaCloud网络加速器   
-[**点击官方网站注册**](https://go.51tz.cc/sodacloud)  
+[**点击官方网站注册**](https://go.1vpn.cc/soda)  
 不限时不限速按量计费50元
 
 ![苏打云机场](https://github.com/AlipJJ/Best-VPN-1/assets/142561372/8743c3dd-87e8-4fbb-9e23-82463e84c861)
